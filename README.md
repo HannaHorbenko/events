@@ -15,5 +15,5 @@ If you have a business related to sales or services, a landing page will come in
 
 ## For cooperation: 
 
-I'm on LinkedIn [https://www.linkedin.com/in/hanna-s-horbenko/](https://www.linkedin.com/in/hanna-s-horbenko/)</br>
-My email [annasgorbenko@gmail.com](annasgorbenko@gmail.com)
+[I'm on LinkedIn ](https://www.linkedin.com/in/hanna-s-horbenko/)</br>
+[My email](mailto:annasgorbenko@gmail.com)
